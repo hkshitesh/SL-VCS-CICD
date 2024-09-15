@@ -11,4 +11,5 @@
 
 ## password
 
-qzxl rfpw kizn yyab
+hkshitesh@gmail.com
+ezcc cjpc xgsl znyd
